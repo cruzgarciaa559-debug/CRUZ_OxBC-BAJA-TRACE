@@ -1,1 +1,1 @@
-https://gboard.app.goo.gl/67r8J# CRUZ_OxBC-BAJA-TRACE
+ CRUZ_OxBC-BAJA-TRACE
